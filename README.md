@@ -1,0 +1,62 @@
+# 尾崎匠海 & 藤牧京介 (INI) – FLY HIGH
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah yeah yeah yeah yeah
+Oh Yeah
+Yeah yeah yeah yeah oh
+鳴り響いた鼓動に(鼓動に)
+ひたすらに身を委ねて
+眩しい太陽に負けないような
+僕らでいられたら
+どんな困難が待っていようと
+正解なんてわからない
+Hands up 空高く
+Shake it up 気の向くまま
+挑戦への一歩踏み出そう
+さぁ Fly High
+こっから始まんだ(Just now)
+果てのない(Hey)
+広い空も(Hey)
+今抱きしめよう(U＆l)
+さぁ Fly High
+ともに風感じながら(Let's go)
+最高のきらめき共有しよう
+NaNaNa...
+この景色を共有しよう
+わかり合いたい(Give me five)
+それぞれのリズムで
+2人のTime いつも笑いたい
+Let's make it happen Yeah
+重なった瞬間 未来になって今
+また始まる
+そこに間違いがあったとして
+誰にも決められない
+Hands up 空高く
+Shake it off 気の向くまま
+挑戦への一歩踏み出そう
+さぁ Fly High
+こっから始まんだ(Just now)
+果てのない(Hey)
+広い空も(Hey)
+今抱きしめよう(U＆l)
+さぁ Fly High
+ともに風感じながら(Let's go)
+最高のきらめき共有しよう
+今はまだ数え切れない壁ばかりだろう
+いつかきっと翼に変わると信じて進もう
+さぁ Fly High
+こっから始まんだ(Just now)
+果てのない(Hey)
+広い空も(Hey)
+今抱きしめよう(U＆l)
+さぁ Fly High
+ともに風感じながら(Let's go)
+最高のきらめき共有しよう
+NaNaNa...
+この景色を共有しよう
+Yeah yeah yeah yeah yeah
+Oh Yeah oh
+Yeah yeah yeah yeah oh
+```
